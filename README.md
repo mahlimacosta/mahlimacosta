@@ -2,7 +2,7 @@
 
 ### 👋 @mahlimacosta
 ### 👀 estudante de programação
-### 🌱 estou aprendendo informatica
+### 🌱 estou estudando informatica
 ### 💞️ amo jogos
 
 
